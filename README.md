@@ -1,1 +1,0 @@
-# jumperming.github.io
